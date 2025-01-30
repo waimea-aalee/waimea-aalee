@@ -1,7 +1,5 @@
 ## Hi 👋
 
-~ My name is Azaria and I play too much roblox
-
 <!--
 **waimea-aalee/waimea-aalee** is a ✨ _special_ ✨ repository because its `README.md` (this file) appears on your GitHub profile.
 
