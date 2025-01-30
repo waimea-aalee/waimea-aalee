@@ -1,5 +1,7 @@
 ## Hi 👋
 
+- Student at Waimea College ⋆𐙚₊˚⊹♡
+
 <!--
 **waimea-aalee/waimea-aalee** is a ✨ _special_ ✨ repository because its `README.md` (this file) appears on your GitHub profile.
 
