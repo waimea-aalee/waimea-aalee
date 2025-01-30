@@ -1,6 +1,7 @@
 # Hi 👋
 
 - Student at Waimea College ⋆𐙚₊˚⊹♡
+- I like drawing
 
 <!--
 **waimea-aalee/waimea-aalee** is a ✨ _special_ ✨ repository because its `README.md` (this file) appears on your GitHub profile.
