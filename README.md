@@ -1,4 +1,4 @@
-## Hi 👋
+# Hi 👋
 
 - Student at Waimea College ⋆𐙚₊˚⊹♡
 
