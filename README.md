@@ -2,6 +2,7 @@
 
 - Student at Waimea College ⋆𐙚₊˚⊹♡
 - I like drawing
+- I play too much Roblox
 
 <!--
 **waimea-aalee/waimea-aalee** is a ✨ _special_ ✨ repository because its `README.md` (this file) appears on your GitHub profile.
